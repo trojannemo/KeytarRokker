@@ -3,6 +3,8 @@
 **© TrojanNemo, 2015–2025**  
 *Dedicated to the rhythm gaming community*
 
+![Keytar Rokker](https://nemosnautilus.com/keytar/keytarrokkerv110.jpg)
+
 ---
 
 ## About
